@@ -2,5 +2,8 @@
 
 ## Ingredients
 
+* Avocado
+* Lemon
+* Salt
 
 ### Recipe
