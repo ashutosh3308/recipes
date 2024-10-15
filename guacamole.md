@@ -3,7 +3,7 @@
 ## Ingredients
 
 * Avocado
-* Lemon
+* Lime
 * Salt
 
-### Recipe
+### Instructions
