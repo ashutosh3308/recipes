@@ -2,11 +2,9 @@
 
 ## Ingredients
 
-* Avocado
-* Green lime
+* Avocado is the best
+* Green Lime or leomone or lemons, or whatever
 * Salt
 
 ### Instructions
-sdsds
-
 I like guacamole
